@@ -7,4 +7,4 @@ Tipos, variáveis e funções
 ![preview](https://7h14g0d.github.io/Alura_012/imagens/Certificado.png)
 .
 
-## 💛💛💛💛💛 
+## 💙💙💙💙💙
